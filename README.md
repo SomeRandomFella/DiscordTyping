@@ -1,0 +1,2 @@
+# DiscordTyping
+infinite stink aura 
